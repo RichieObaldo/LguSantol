@@ -1,0 +1,2 @@
+# LguSantol
+Municipality of Santol
